@@ -1,0 +1,1 @@
+# for7thgrade-scusd.net-only
